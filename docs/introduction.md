@@ -1,4 +1,4 @@
----
+https://www.linkedin.com/posts/andrestorresb_bitcoin-empieza-a-girar-la-fase-de-acumulaci%C3%B3n-activity-7432422587248517120-_SqN?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAV_CeUB2K3FZr_Ocv9snE8o6tPg1UBUass---
 slug: /
 ---
 
